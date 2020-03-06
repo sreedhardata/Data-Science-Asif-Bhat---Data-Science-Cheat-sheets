@@ -1,4 +1,4 @@
-## Follow Me on LinkedIn Here  - [Asif Bhat](https://www.linkedin.com/in/asif-bhat/)
+### Follow Me on - [LinkedIn](https://www.linkedin.com/in/asif-bhat/)  ,   - [Twitter](https://www.linkedin.com/in/asif-bhat/) and   - [Instagram](https://www.linkedin.com/in/asif-bhat/) .
 
 # Data Science Cheatsheets
 
